@@ -1,3 +1,4 @@
-# fdfdfdfd
-# Gobi's_Valley
-# Mad_Monster_Mansion
+Treasure Trove Cove
+Clanker's Cavern
+
+Bubblegloop Swamp
